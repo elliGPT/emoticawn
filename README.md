@@ -1,4 +1,5 @@
-![bounce](https://github.com/user-attachments/assets/7dba1751-1e35-4bcc-9a66-c0293992ff46)
+![bounce](https://github.com/user-attachments/assets/a179bd14-acff-4835-a653-b343badc259c)
+
 
 hi huge wip 
 will probably make new strawpage and ata soon
